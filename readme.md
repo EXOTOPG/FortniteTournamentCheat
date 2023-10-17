@@ -31,4 +31,4 @@ Distance aimbot
 And more
 [✅ Current Status: UNDETECTED]
 
-[You will need to turn of the anti virus bc its a cheat and it is false positive viruses on all chats]
+[You will need to turn of the anti virus bc its a cheat and it is false positive viruses on all cheeeeeeeeets]
